@@ -1,1 +1,1 @@
-LastSec
+Nada a dizer.
